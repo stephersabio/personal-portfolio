@@ -1,2 +1,0 @@
-### John Stepher Sabio
-
